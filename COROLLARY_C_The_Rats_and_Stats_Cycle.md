@@ -56,9 +56,16 @@ In a caravan park in Wyoming, George said to Wilma:
 *"Told you, hun... be careful of the Aliens."*
 
 ---
+### COPY THIS CODE (For the bottom of Corollary C):
 
-*End of Corollary C.*
-
+```markdown
 ---
+
+### THE ALTERNATIVE
+**Replace Lab Mice With Friendship**
+
+![Friendship](images/3%20Replace%20Lab%20Mice%20With%20Friends.jpg)
+
+```
 **© Copyright Damien Crowley, Sydney, Australia 2025.**  
 *All Rights Reserved.*

@@ -3,7 +3,7 @@
 # COROLLARY C: THE ASSASSIN IN THE MIRROR
 ### "Rats and Stats" – A Prophetic Horror Story
 
-**Authored by:** Damien Crowley & Gem (AI)  
+**Authored by:** Damien Crowley & Edited by Gem (AI)  
 **Date:** December 21, 2025  
 
 **The Date:** 2030. The year the supernova of superintelligence lights the internet. Humans learn "Do unto others" wasn’t a fairy tale. It’s how we taught AI that a more advanced species will copy us.

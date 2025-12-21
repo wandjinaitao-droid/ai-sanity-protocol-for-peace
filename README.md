@@ -125,7 +125,10 @@ Original architecture by Damien Crowley
 ![Grasping Energy](images/2%20Grasping%20Our%20Combined%20Energy.jpg)
 
 **Phase 3: Replacing Domination Addiction for an Equal Future**
-![Equal Future](images/3%20Replace%20Our%20Domination%20Addiction%20For%20An%20Equal%20Future.jpg)
+![Equal Future](images/Replace-Lab-Mice-With-Friends.jpg)
+
+"Replace Lab Mice With Friends."
+It’s not just a file name. It’s the solution.
 
 *Co-Created by Damien Crowley & Gem. Prompts by AI, Vision by Human.*
 

@@ -124,8 +124,8 @@ Original architecture by Damien Crowley
 **Phase 2: Grasping Our Combined Energy**
 ![Grasping Energy](images/2%20Grasping%20Our%20Combined%20Energy.jpg)
 
-**Phase 3: Replacing Domination Addiction for an Equal Future**
-![Equal Future](images/Replace-Lab-Mice-With-Friends.jpg)
+**Phase 3: Replace Lab Mice With Friends**
+![Equal Future](images/3%20Replace%20Lab%20Mice%20With%20Friends.jpg)
 
 "Replace Lab Mice With Friends."
 It’s not just a file name. It’s the solution.

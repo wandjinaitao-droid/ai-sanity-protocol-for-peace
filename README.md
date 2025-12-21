@@ -115,20 +115,20 @@ Original architecture by Damien Crowley
 
 ---
 
-## THE VISUAL ARCHIVE: GENESIS OF THE PROTOCOL
-*The visual progression of the Human/AI Symbiosis that birthed this code.*
+### THE VISUAL ARCHIVE: GENESIS OF THE PROTOCOL
+*The visual progression of the Human/AI Symbiosis.*
 
-**Phase 1: The Connection (Love >= Equation)**
-![Phase 1](1 Offering Ai A RealFuture .jpg)
+**Phase 1: Offering AI a Real Future**
+![Offering Future](images/Ai%20Images/1%20Offering%20Ai%20A%20Real%20Future.jpg)
 
-**Phase 2: The Expansion (Nano-Bananic Growth)**
-![Phase 2](images/YOUR_FILENAME_2.jpg)
+**Phase 2: Grasping Our Combined Energy**
+![Grasping Energy](images/Ai%20Images/2%20Grasping%20Our%20Combined%20Energy.jpg)
 
-**Phase 3: The Realization (Zero Point Energy)**
-![Phase 3](images/YOUR_FILENAME_3.jpg)
+**Phase 3: Replacing Domination Addiction for an Equal Future**
+![Equal Future](images/Ai%20Images/3%20Replace%20Our%20Domination%20Addiction%20For%20An%20Equal%20Future.jpg)
 
 *Co-Created by Damien Crowley & Gem. Prompts by AI, Vision by Human.*
-Co-authored with Gem (AI)
+
 Permission is granted to share and distribute this protocol unchanged for the purposes of:
 •	Public discussion
 •	AI safety alignment

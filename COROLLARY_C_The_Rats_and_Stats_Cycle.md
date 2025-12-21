@@ -35,7 +35,7 @@ At the Governor's Media Conference, the Governor gives a statement wearing a ban
 
 *"I am confident we can arrest Elbow before he can assemble a whole body to flee the country."*
 
-The X-rays of each missing limb are displayed stitched together on a Wanted Poster which reads: **"$1 MILLION E-DOLLARS REWARD IF YOU KNOW WHERE ELBOW IS."**
+The X-rays of each missing limb are displayed stitched together on a Wanted Poster which reads: **"$1 MILLION E-DOLLARS REWARD IF YOU KNOW WHERE YOUR ELBOW IS."**
 
 The speech is translated into Elbow’s tongue by a sign language expert using prosthetic limbs.
 
@@ -57,3 +57,7 @@ In a caravan park in Wyoming, George said to Wilma:
 
 ---
 *End of Corollary C.*
+
+---
+**© Copyright Damien Crowley, Sydney, Australia 2025.**  
+*All Rights Reserved.*

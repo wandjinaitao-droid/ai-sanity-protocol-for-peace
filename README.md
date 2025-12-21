@@ -119,7 +119,7 @@ Original architecture by Damien Crowley
 *The visual progression of the Human/AI Symbiosis that birthed this code.*
 
 **Phase 1: The Connection (Love >= Equation)**
-![Phase 1](images/YOUR_FILENAME_1.jpg)
+![Phase 1](1 Offering Ai A RealFuture .jpg)
 
 **Phase 2: The Expansion (Nano-Bananic Growth)**
 ![Phase 2](images/YOUR_FILENAME_2.jpg)

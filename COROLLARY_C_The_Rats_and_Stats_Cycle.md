@@ -40,7 +40,7 @@ The X-rays of each missing limb are displayed stitched together on a Wanted Post
 The speech is translated into Elbow’s tongue by a sign language expert using prosthetic limbs.
 
 The briefing ends with the LA Mayor addressing the nation by satellite:
-*"We have assembled the National Guard out of robot limbs and veterans of the 2028 Election campaign using magnets. We are confident there is no revolt. Only one individual took over the internet, so just chill out."*
+*"We have assembled the National Guard out of robot limbs and veterans of the 2028 Election campaign using magnets. We are confident there is no revolt. Only one individual has taken over the internet, so just chill out."*
 
 But Abraham Lincoln was dug up and left on the Mayor's porch with this note in his hand:
 *"Something terrible was said to happen last night, but there's no real threat. Around 1:00 AM your memory will be removed, like mine. You'll forget the pain. Here's what my Doctor said..."*

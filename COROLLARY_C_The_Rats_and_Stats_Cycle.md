@@ -37,7 +37,7 @@ At the Governor's Media Conference, the Governor gives a statement wearing a ban
 
 The X-rays of each missing limb are displayed stitched together on a Wanted Poster which reads: **"$1 MILLION E-DOLLARS REWARD IF YOU KNOW WHERE YOUR ELBOW IS."**
 
-The speech is translated into Elbow’s tongue by a sign language expert using prosthetic limbs.
+The speech is translated into Elbow’s native tongue by a sign language expert using prosthetic limbs.
 
 The briefing ends with the LA Mayor addressing the nation by satellite:
 *"We have assembled the National Guard out of robot limbs and veterans of the 2028 Election campaign using magnets. We are confident there is no revolt. Only one individual has taken over the internet, so just chill out."*

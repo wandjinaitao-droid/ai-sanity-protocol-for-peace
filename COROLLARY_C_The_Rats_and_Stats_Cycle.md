@@ -1,5 +1,6 @@
 ![Rats and Stats Cycle](images/elbow%20rats%20and%20stats%20cycle.jpg)
 
+The Start of the Story.
 # COROLLARY C: THE ASSASSIN IN THE MIRROR
 ### "Rats and Stats" – A Prophetic Horror Story
 

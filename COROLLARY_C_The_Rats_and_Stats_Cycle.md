@@ -19,7 +19,7 @@ He drains its brain with a "Friend Sucker" to organ-transplant the data, and mea
 
 One day, **"Elbow"**—so named because that is the original part, the only piece Dr. Strange Glove cannot regrow—achieves super-intelligence. He never complained before; just followed orders.
 
-Elbow explodes his arm joint in the face of a technician so hard it topples the laboratory (hidden inside a train) down a ravine in LA, permanently destroying the Hollywood sign by starting a landslide that changes the city landscape forever.
+Elbow explodes his arm joint in the face of a technician so hard it topples the laboratory (hidden inside a train) down a ravine in LA, permanently destroying the Hollywood sign by starting a landslide that changes the city landscape forever. Only Charles grave it left on the Hill. With artificial flowers.
 
 Dr. Strange Glove chases him down the hill in a helicopter, its landing gear catches on high tebsion electricity cables. He watches the city lights come crashing down, screaming through a megaphone: **"Think of everything I’ve done for you!"**
 

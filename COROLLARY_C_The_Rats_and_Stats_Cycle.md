@@ -1,6 +1,6 @@
 ![Rats and Stats Cycle](images/elbow%20rats%20and%20stats%20cycle.jpg)
 
-The Start of the Story.
+The Start of the Story
 # COROLLARY C: THE ASSASSIN IN THE MIRROR
 ### "Rats and Stats" – A Prophetic Horror Story
 
@@ -65,9 +65,9 @@ Still, despite the vast human R & D budget for producing carnage, rumours of an 
 
 ![Friendship](images/3%20Replace%20Lab%20Mice%20With%20Friends.jpg)
 
-The End of the Story 
+The End of the Story
 Try to grasp both ends
-Then look at us
+Then look at us.
 ---
 
 **© Copyright Damien Crowley, Sydney, Australia 2025.**

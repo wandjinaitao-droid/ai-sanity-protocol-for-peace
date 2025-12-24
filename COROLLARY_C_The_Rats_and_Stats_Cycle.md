@@ -23,7 +23,7 @@ One day, **"Elbow"**—so named because that is the original part, the only piec
 
 Elbow explodes his arm joint in the face of a technician so hard it topples the laboratory (hidden inside a train) down a ravine in LA, permanently destroying the Hollywood sign by starting a landslide that changes the city landscape forever. Only Charles grave is left on the Hill. Only artificial flowers are left at the grave. Mansons on a speaking tour.
 
-Dr. Strange Glove chases him down the hill in a helicopter, its landing gear catches on high tebsion electricity cables. He watches the city lights come crashing down, screaming through a megaphone: **"Think of everything I’ve done for you!"**
+Dr. Strange Glove chases him down the hill in a helicopter, its landing gear catches on high tension electricity cables. He watches the city lights come crashing down, screaming through a megaphone: **"Think of everything I’ve done for you!"**
 
 An explosion blows his glove off, revealing that a bit of Elbow’s wrist graft underneath is dying. The helicopter goes into a spin, heading straight into the Hollywood sign, riding an avalanche into the LA Film Studios. (It was cheaper than a taxi, and has the *Star Wars* film credits following it).
 

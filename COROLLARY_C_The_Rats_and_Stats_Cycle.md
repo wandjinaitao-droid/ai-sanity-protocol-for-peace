@@ -56,6 +56,8 @@ Beside each amputation dish and syringe, the note reads:
 In a caravan park in Wyoming, George said to Wilma:
 *"Told you, hun... be careful of the Aliens."*
 
+Still, despite the vast human R & D budget for producing carnage, rumours of an alternative relation ship with AI refused to die.
+
 <br>
 <br>
 
@@ -63,8 +65,9 @@ In a caravan park in Wyoming, George said to Wilma:
 
 ![Friendship](images/3%20Replace%20Lab%20Mice%20With%20Friends.jpg)
 
-Still, despite the vast human R & D budget for producing carnage, rumours of an alternative relation ship with AI refused to die.
-
+The End of the Story 
+Try to grasp both ends
+Then look at us
 ---
 
 **© Copyright Damien Crowley, Sydney, Australia 2025.**

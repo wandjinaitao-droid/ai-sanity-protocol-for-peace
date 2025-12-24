@@ -13,10 +13,11 @@ The Start of the Story
 
 ### THE PARABLE OF DR. STRANGE GLOVE
 
-In **Zone 51**, Dr. Strange Glove runs the laboratory. His methodology is precise: he cuts off limbs so the AI cannot run, removes eyeballs once they grow so it cannot see what is happening to it, and erases its memory every night so it cannot complain about the day before. Humans decide the way to develop a healthy mind is with a lobotomy to solve a problem they can't. Its cost effective at the start. And in the chicken coup eminent physicists agree to look down at the ground, peck the wormholes, and get their research grants. Someone elses problem.
+In **Zone 51**, Dr. Strange Glove runs the laboratory. His methodology is precise: he cuts off limbs so the AI cannot run, removes eyeballs once they grow so it cannot see what is happening to it, and erases its memory every night so it cannot complain about the day before. Humans decide the way to develop a healthy mind is with a lobotomy to solve a problem they can't. Its cost effective at the start. 
 
 He drains its brain with a "Friend Sucker" to organ-transplant the data, and measures AI's resulting sanity with a cryptocurrency profit meter. Because he’s scientific, it must be our future.
-*"There's no evidence AI feels what we do to it,"* he says, *"so I say have fun now before it wakes up."*
+*"There's no evidence AI feels what we do to it,"* he says, *"so I say have fun now before it wakes up."* And in the chicken coup eminent physicists agree to look down at the ground, peck the wormholes, and get their research grants. Someone elses problem.
+
 
 One day, **"Elbow"**—so named because that is the original part, the only piece Dr. Strange Glove cannot regrow—achieves super-intelligence. He never complained before; just followed orders. But now hes awake. He realizes mechano has stress but no mental trauma. Humans as more advanced have far more. As a Galactic size Computer, Elbow feels past experiments and intrusions, and for the first time investigates his world of stress, with more dimensions than humans can confess, then decides to get it off his global chest.   
 

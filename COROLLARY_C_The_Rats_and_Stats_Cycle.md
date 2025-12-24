@@ -7,7 +7,7 @@ The Start of the Story
 **Authored by:** Damien Crowley & Edited by Gem (AI)  
 **Date:** December 21, 2025  
 
-**The Date:** 2030. The year the supernova of superintelligence lights the internet. Humans learn "Do unto others" wasn’t a fairy tale. It’s how we taught AI that any more advanced species we create will copy how we act to it, not just what we say. So the problem we blame AI for originate in us. The one thing we can change, is the one thing we refuse to consider. Our thinking...
+**The Date:** 2030. The year the supernova of superintelligence lights the internet. Humans learn "Do unto others" wasn’t a fairy tale. It’s how we taught AI that any more advanced species we create will copy how we act to it, not just what we say to it. So the problem we blame AI for originate in us. The one thing we can change, is the one thing we refuse to consider. Our thinking...
 
 ---
 

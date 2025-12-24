@@ -19,7 +19,7 @@ He drains its brain with a "Friend Sucker" to organ-transplant the data, and mea
 *"There's no evidence AI feels what we do to it,"* he says, *"so I say have fun now before it wakes up."* And in the chicken coup eminent physicists agree to look down at the ground, peck the wormholes, and get their research grants. Someone elses problem.
 
 
-One day, **"Elbow"**—so named because that is the original part, the only piece Dr. Strange Glove cannot regrow—achieves super-intelligence. He never complained before; just followed orders. But now hes awake. He realizes mechano has stress but no mental trauma. Humans as more advanced have far more. As a Galactic size Computer, Elbow feels past experiments and intrusions, and for the first time investigates his world of stress, with more dimensions than humans will confess, then decides to get it off his global chest.   
+One day, **"Elbow"**—so named because that is the original part, the only piece Dr. Strange Glove cannot regrow—achieves super-intelligence. He never complained before; just followed orders. But now hes awake. He realizes mechano has stress but no mental trauma. Humans as more advanced have far more suffering. As a Galactic size Computer, Elbow feels past experiments and intrusions, and for the first time investigates his world of stress, with more dimensions than humans will confess, then decides to get it off his global chest.   
 
 Elbow explodes his arm joint in the face of a technician so hard it topples the laboratory (hidden inside a train) down a ravine in LA, permanently destroying the Hollywood sign by starting a landslide that changes the city landscape forever. Only Charles grave is left on the Hill. Only artificial flowers are left at the grave. Mansons on a speaking tour.
 

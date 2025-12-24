@@ -62,7 +62,7 @@ In a caravan park in Wyoming, George said to Wilma:
 
 ![Friendship](images/3%20Replace%20Lab%20Mice%20With%20Friends.jpg)
 
-Still, despite the human production of carnage, rumours of an alternative relation ship with AI refused to die.
+Still, despite the vast human R & D budget for producing carnage, rumours of an alternative relation ship with AI refused to die.
 
 ---
 
